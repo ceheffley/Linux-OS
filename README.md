@@ -1,3 +1,5 @@
+**DO NOT USE THIS CODE FOR THE MP, DOING SO WILL RESULT IN AN ACADEMIC INTERGRITY VIOLATION**
+
 ACADEMIC INTEGRITY
 -----
 Please review the University of Illinois Student Code before starting,
